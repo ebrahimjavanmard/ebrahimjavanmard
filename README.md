@@ -9,6 +9,10 @@
 برای تماس با من در تلگرام به اینجا پیام دهید:
 
 https://t.me/EbrahimJavanmard
+  
+برای ارسال دونیشن:
+
+EbrahimJavanmard@lntxbot.com
 
 </div>
 
